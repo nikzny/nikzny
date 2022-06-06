@@ -1,2 +1,2 @@
-Meu nome é Nikolas, sou estudante do Colégio Estadual Do Paraná
-
+*Meu nome é Nikolas🕷️, sou estudante do Colégio Estadual Do Paraná*
+🗿
